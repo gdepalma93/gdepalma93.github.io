@@ -1,3 +1,13 @@
+## Grant DePalma
+
+### Professional Mission Statement
+To Maximize Generational Health and Wealth for family, partners, clients, & token holders.
+
+### Executive Summary
+High Performing, highly experienced and profound multi-disciplinary professional in prime position to leverage skill set to generate 175% returns from proprietary trading efforts, accumulate 20% bitcoin from digital asset management efforts, and impact over 100,000 athletes, entrepreneurs, coaches and engineers from coaching efforts in 2021. Currently seeking capital allocation from private investors and proprietary trading firms seeking exposure to quality alpha streams in US Equity, Crypto, and Global Derivative Markets.
+
+
+
 ## Welcome to GitHub Pages
 
 You can use the [editor on GitHub](https://github.com/gdepalma93/gdepalma93.github.io/edit/main/README.md) to maintain and preview the content for your website in Markdown files.
